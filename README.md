@@ -1,2 +1,2 @@
 # INTERESTS
-☆ ﹕HYPERFIXATIONS; 
+hi 
